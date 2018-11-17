@@ -1,1 +1,0 @@
-bruno ti si kreten :D
